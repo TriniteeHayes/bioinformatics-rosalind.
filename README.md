@@ -1,1 +1,1 @@
-# bioinformatics-rosalind.
+Trinitee Hayes + 1001857374 + BIOL5340-001
